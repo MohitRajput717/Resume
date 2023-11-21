@@ -1,5 +1,5 @@
 
-## Mohit Singh
+## RESUME             (Mohit Singh)
 •Om nagar Gurugram • 8209212713 • mohit.tanwar.rajput@gmail.com • 
 [linkedin](https://linkedin.com/in/mohit-singh-b86819124)
 - [Github-Projects Portfolio](https://github.com/MohitRajput717/Data-Analyst-Business-Analyst-Portfolio-Project)
